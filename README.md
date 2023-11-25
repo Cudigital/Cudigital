@@ -1,4 +1,4 @@
-# - 👋 Hi, I’m Cudigital #
+# - 👋 Hi, I’m Chinenye Nwoko #
 
 ## I am an Educator turned UX/UI Designer  ##
 - 👀 I’m interested in UX/UI Design and Data Analytics.
